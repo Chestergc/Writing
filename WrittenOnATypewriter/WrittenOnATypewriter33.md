@@ -1,0 +1,23 @@
+Hey there people how are you all doing? This has been a lazy week for me, haven't even thought about stuff as much as I usually do, besides about the war and stuff. A couple of minutes ago I started thinking about playing games and decided this was the column's theme this week: The game I want to play. Maybe a indie dev or two will hear about this and start making it for my enjoyment.
+
+There are a couple things we need to decide before we start with the game making stuff, first of all, 2d or 3d?
+
+I personally love 2d games, I've grew up with them and absolutely love them, although Isometric games are rather... annoying for me. Yeah I know there are some games that really shine because they are isometric, like the Mother series or Zombies ate my neighbours, but in general they annoy me. The top down levels from Contra are ridiculously boring, I did tend to play just the first level and then turn off the console because I got bored as soon as the second level started.
+
+I love 3d games too, there are so many things that you can only convey properly in 3d, like a mall infested with zombies, or a proper horror movie experience, not that 2d games can't be scary, it's just that it's way easier to make a scary 3d game. And also racing, 3d racing games are always miles ahead from 2d ones, especially because 2d racing is just a fake 3d perspective.
+
+If I had to choose one, I wouldn't be able to, I would end up with something like Metroid other M, with a simple and static camera following from vantage points in a 3d environment, or like Super Mario 3d World, with the awesome square geometry everywhere so that it is simpler to run through it. In any case, that is one of the questions dealt with, moving on.
+
+Next, what "genre" would it be? Well, that is a hard one, but my three favourites are Action/Adventure, Racing and Platforming, as you can see, Metroid, Mario and Need for Speed are represented there, my top three of all time. Obviously there are some more games that I could't live without, like The Last of Us, Monster Hunter, Mass Effect, the new Alien game, No More Heroes, and a ton more, take all my favourites and drop them on a blender, that is what I want. Not doable though.
+
+Genres are really weird some times, you can probably say that Mass Effect is a RPG, but that would not convey the experience, so the genre is action/RPG, which gets closer. Genres are weird. For me, for the game I'm hypothesising here, I would probably go for a Action/Adventure experience with Racing/Flying and platforming.
+
+If you want to think about it objectively, think Metroid with vehicles.
+
+And the story, nowadays story is really important, everyone complains when a game doesn't have a story, I have even seen people complaining about Mario because of the lack of story.
+
+For me it doesn't make all that much difference, it could really be: There was a kid on a swing and then zombies ate his parents and stuff happened, and I would play it with the same enthusiasm I would play anything else, but let's use a simple story I've had for a long time in my head.
+
+There is a guy in the desert, he is looking for something with a couple electronic devices in hand. He gives up the search and call in an airship. after a couple seconds waiting the ship is above him, a blimp with a regular ship strapped underneath it, the guy gets in the ship using a rope and they head towards a city that couldn't be seen before, the place looks burned even from far away. Then as you explore the ship you find some huge weapons that no real person would be able to use and you can take some, as you get to the city you figure out there are zombies and the purpose of the game is just survive for as long as you can. There could be a more developed story in there, but there is no need for it actually. The point of the game would be Dead Rising + Metroid + Need for Speed + Mario.
+
+The point is that it only has to be fun, that is why Goat Simulator worked, that is why Gmod worked, even Minecraft, if a game is fun to play people will play it, and that is what I wanted to get across in this column. The thing that makes nintendo such a good company is that they are willing to sacrifice anything to make a game fun, take a look at Splatoon, Mario, even the new Metroid game, they are pretty much sacrificing the franchise name for a glorified sports game, but if it is fun to play, I will play it. But hey don't take my word for it, take a look at your game collection, you know that there are at least a couple games there that were not good per se, but were fun as all heck to play. As always guys thank you for reading this week's column and until next week.
