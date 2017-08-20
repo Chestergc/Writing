@@ -39,7 +39,7 @@ The same can be said for the octahedron.
 acos(-(1/3))
 ```
 
-I want to start over. The angle for the octahedron is 109,47 degrees if you're wondering. Start learning maths again, doing it right this time, I can't even consider how the hell would someone even come up with these formulas.
+I want to start over. The angle for the octahedron is 109,47 degrees if you're wondering, and I was wrong about the angle for tetrahedrons, the calculations are a bit more complex that intended. Start learning maths again, doing it right this time, I can't even consider how the hell would someone even come up with these formulas.
 
 I suppose I will take my time on this one, and make it a good past time, grab a few books on recreational mathematics before diving into the boring stuff they teach in school. There it is, the next topic, recreational mathematics.
 
