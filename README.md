@@ -9,3 +9,5 @@ So, It's on github. I will use this repo to backup the files I want to keep from
 There it is, the whole written on a typewriter series, for whoever wants to read. I will start a new series just for getting stuff off my chest, thinking of a name for it right now.
 
 About Machines is my new series, as always, the title is three times better than the content, have fun friends. =)
+
+The on the topic series is over by the way. It's still a good name, will probably use it eventually, but it will be completely different the next time I try it.
